@@ -1,2 +1,2 @@
-# weidong.cao
-Weidong Cao's Personal Website
+# Wecome to Weidong Cao's Personal Website~
+Weidong Cao's Personal Website.
